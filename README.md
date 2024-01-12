@@ -1,7 +1,8 @@
 # Giving Goods
 
 # Image
-![image](https://github.com/yogabudisantoso/GIVING-GOODS/assets/130076259/e17c51fc-e803-4411-83dc-8e7b86770c2d)
+![Group 41224](https://github.com/yogabudisantoso/GIVING-GOODS/assets/130076259/eb3a1658-379c-42ed-ba6a-b1d1f160b6c2)
+
 
 
 # Dekripsi team
